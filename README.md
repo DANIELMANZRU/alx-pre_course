@@ -1,1 +1,1 @@
-My first readme
+It needs more grit and growth mindset
